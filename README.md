@@ -11,7 +11,7 @@
 
 Who is the most beautiful? You. ✨⭐️
 
-Official Website: [https://githubwebstudiomakerperfect.github.io/]([https://pages.github.com/](https://githubwebstudiomakerperfect.github.io/))
+Official Website: [https://githubwebstudiomakerperfect.github.io/](https://githubwebstudiomakerperfect.github.io/))
 
 <!---
 GitHubWebStudioMakerPerfect/GitHubWebStudioMakerPerfect is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
