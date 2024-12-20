@@ -2,7 +2,7 @@
 - 👀 I’m interested in Bananas 🍌
 - 🌱 I’m currently learning how to eat Apples 🍏
 - 💞️ I’m looking to collaborate on Hamburgers 🍔
-- 📫 How to reach me? Please do not reach me 🔫
+- 📫 How to reach me? If you reach me 🔫 PUM PUM 😜😝🤪
 - 😄 Pronouns: "Mr. Supreme King of the World". It could be abbreviated like "MSKOTW" 👑
 - ⚡ Fun fact: I like trains 💥🚝
 - ☠️ I hate: Boomerangs 🪃
