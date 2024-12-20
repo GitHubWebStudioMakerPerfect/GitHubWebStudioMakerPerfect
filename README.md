@@ -7,7 +7,7 @@
 - ⚡ Fun fact: I like trains 💥🚝
 - ☠️ I hate: Boomerangs 🪃
 - ❤️ I like: Girls a lot 👧
-- 🌵 Things to do before die: Don't die 🤑
+- 🌵 Things to do before die: Don't die (Tomorew Newer Deii) 🤑
 
 Who is the most beautiful? You. ✨⭐️
 
